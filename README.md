@@ -29,13 +29,16 @@ Located in the heart of chandigarh, Tasty Bites is conveniently accessible and r
 
 Visit Us :
 Address: [chandigarh 19 phase ]
+
 Phone: [9835326788]
+
 Email: [tastybites27@gmail.com]
 
 
 
 Opening Hours :
 Monday - Friday: 11:00 AM - 10:00 PM
+
 Saturday - Sunday: 9:00 AM - 11:00 PM
 
 Stay Connected
